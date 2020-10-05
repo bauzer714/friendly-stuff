@@ -2,4 +2,14 @@
 
 soon to be a set of scripts are useful
 
-brady is the best ever - yes he is
+Nurses:
+Natasha
+Jessica
+Kim
+
+
+Baby nurse
+Cathy
+
+Obca
+Katie
